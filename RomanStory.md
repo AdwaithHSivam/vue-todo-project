@@ -11,7 +11,9 @@ Opiter's aunt Lucia had been living under his care ever since her husband's demi
 What should Opiter do?
 
 A. Rebuke Octavia and side with lucia.
+
 B. Pacify Lucia and bring in the doctor.
+
 C. Appear to side with Lucia but bring in the doctor secretly.
 
 
